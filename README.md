@@ -1,2 +1,1 @@
-# cui2.github.io
-Test for a portfolio
+# GET OUT OF MY SITE
